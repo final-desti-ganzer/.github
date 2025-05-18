@@ -1,4 +1,4 @@
-## KINO~HD Final Destination 6: Bloodlines (2025) Ganzer Deutsch
+## KINO~HD] Final Destination 6: Bloodlines (2025) Ganzer Deutsch
 
 ### .github
 
